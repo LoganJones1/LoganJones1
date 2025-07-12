@@ -1,5 +1,5 @@
 IT/Software Enthusiast - Aspiring to benefit the World 🌎 through Technology 👨‍💻 and Leadership 🤝
-📫 How to reach me:
+- 📫 How to reach me:
 - Email: logan.jones1@ucalgary.ca
 - Phone: (825)994-1581
 
